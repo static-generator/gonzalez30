@@ -1,4 +1,4 @@
-# Gonzalez 30
+# Gonzalez 
 
 
 **I am Jillian Margaret Paglinawan. I was born on December 21, 2009.**
